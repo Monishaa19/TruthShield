@@ -1,0 +1,1 @@
+https://www.india.com/hindi-news/entertainment-hindi/rashmika-mandanna-deep-fake-case-police-identifies-four-suspects-one-is-still-missing-6599139/
